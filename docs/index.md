@@ -60,8 +60,3 @@ About Me:
 * In late August I will start my freshman year in high school.
 * My favorite food is mac and cheese.
 * My favorite desert is mac and cheese.
-
-*Links To Resources:
-
-* 
-
