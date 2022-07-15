@@ -46,4 +46,22 @@ The impact of gun violence is far reaching and devastating. By understanding the
 
 * Prohibit firearm access for high risk groups.
 
-![st,small,507x507-pad,600x600,f8f8f8](https://user-images.githubusercontent.com/109317113/179129023-3b1b46c8-0694-413e-b2a2-60f790c4087f.jpg)
+![st,small,507x507-pad,600x600,f8f8f8](https://user-images.githubusercontent.com/109317113/179129023-3b1b46c8-0694-413e-b2a2-60f790c4087f.jpg) 
+
+Links To Recources Used:
+
+(https://publichealth.jhu.edu/departments/health-policy-and-management/research-and-practice/center-for-gun-violence-solutions/solutions/strategies-to-reduce-community-gun-violence)  (https://time.com/5209901/gun-violence-america-reduction/)  (https://www.preventioninstitute.org/focus-areas/preventing-violence-and-reducing-injury/preventing-violence-advocacy)
+
+
+About Me:
+
+* My Name Is Samia Hall and I'm 13 years old.
+* I was born and raised in Philly.
+* In late August I will start my freshman year in high school.
+* My favorite food is mac and cheese.
+* My favorite desert is mac and cheese.
+
+*Links To Resources:
+
+* 
+
